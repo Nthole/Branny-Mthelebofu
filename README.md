@@ -1,2 +1,3 @@
 # Branny-Mthelebofu
-New Project
+New Project in Github
+I love art :data: research:, and analysing data:.
